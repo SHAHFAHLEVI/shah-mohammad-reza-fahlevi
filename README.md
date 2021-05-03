@@ -1,1 +1,0 @@
-# shah-mohammad-reza-fahlevi
